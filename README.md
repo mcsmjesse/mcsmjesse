@@ -4,7 +4,7 @@ Hello!
 
 - Call us Medic, Romeo or Jesse! You can even switch between the names. 
 
-- Collective pronouns are : HE . HYMN . THEY . CLAW . NARC . IT . ASK
+- Collective pronouns are : HE . HIM
 
 - We are genderfluid (mostly male,though) , Poly , and omnisexual. Sometimes this isnt the case for other alters however.
 
