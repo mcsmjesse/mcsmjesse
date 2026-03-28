@@ -1,4 +1,5 @@
 ## MEET THE MEDIC !
+also im. looking for friends. please add me on discord if interested (glitchedgui)  .  im 5teen
 
 - Call me Medic !
 
