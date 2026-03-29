@@ -1,6 +1,8 @@
 ## MEET THE MEDIC !
 also im. looking for friends. please add me on discord if interested (glitchedgui)  .  im 5teen . please be educated on personality disorders and DID. be educated on fictionkin / otherkin / therian stuff . DONT.BE.DRY. 
 
+also if youre in the tf2 area? i've probably seen your github. boomheadshotmate? yeah i've seen you. AxonMalware? i've seen you. 
+
 - Call me Medic !
 
 - Spiritial,Physical,AND Psychological Medic fictionkin. Though please dont see me as someone that just fictionkins Medic, I AM Medic
