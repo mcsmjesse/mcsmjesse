@@ -1,5 +1,5 @@
 ## MEET THE MEDIC !
-also im. looking for friends. please add me on discord if interested (glitchedgui)  .  im 5teen
+also im. looking for friends. please add me on discord if interested (glitchedgui)  .  im 5teen . please be educated on personality disorders and DID. be educated on fictionkin / otherkin / therian stuff . DONT.BE.DRY. 
 
 - Call me Medic !
 
