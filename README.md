@@ -1,11 +1,13 @@
 ## MEET THE MEDIC !
 also im. looking for friends. please add me on discord if interested (glitchedgui)  .  im 5teen . please be educated on personality disorders and DID. be educated on fictionkin / otherkin / therian stuff . DONT.BE.DRY. 
 
-also if youre in the tf2 area? i've probably seen your github. boomheadshotmate? (the really cool sniper yes idk him but he seems so cool Ough) yeah i've seen you. AxonMalware? i've seen you. and more...but i forgot their names..
+also if youre in the tf2 area? i've probably seen your github. boomheadshotmate? (the really cool sniper yes idk him but he seems so cool Ough) yeah i've seen you. AxonMalware? i've seen you. 
 
 - Call me Medic !
 
 - Spiritial,Physical,AND Psychological Medic fictionkin. Though please dont see me as someone that just fictionkins Medic, I AM Medic
+- ^ fictionkin definition in my own words as someone whos been researching it for 4 years:
+- Fictionkins are individuals that INVOLUNTARILY identify *as* a fictional character/species from ANY media. This identity can be spiritual (past life stuff/other spiritual things), physical, or psychological (neurodivergence related, trauma related, brain wiring stuff) . Fictionkin ARE the character they identify as and it is not as simple as a "connection" .
 
  - AUDHD, NPD, DID
 
