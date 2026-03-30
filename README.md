@@ -1,6 +1,6 @@
 ## MEET THE MEDIC !
 ihave the funniest github trust.
-also im. looking for friends. im lonely as hell. maybe thats bc of my npd /j. idk. im wnot thst baf tho. please add me on discord if interested (medicsdonthealscouts)  .  im 5teen . please be educated on personality disorders and DID. be educated on fictionkin / otherkin / therian stuff . DONT.BE.DRY. 
+also im. looking for friends. im lonely as hell. maybe thats bc of my npd /j. idk. im wnot thst bad tho. please add me on discord if interested (medicsdonthealscouts)  .  im 5teen . please be educated on personality disorders and DID. be educated on fictionkin / otherkin / therian stuff . DONT.BE.DRY. 
 
 waiting for yall to notice....if youre in the tf2 area? i've probably seen your github. boomheadshotmate? (the really cool sniper yes idk him but he seems so cool Ough) yeah i've seen you. AxonMalware? i've seen you. lov3wires? yeah. maggotingg? ofc. scoutirl and 07pancakes? OF COUUURSE.
 
