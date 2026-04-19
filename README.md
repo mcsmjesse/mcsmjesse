@@ -19,4 +19,4 @@ waiting for yall to notice im just adding yalls githubs LMFAOOOOOO....if youre i
 
  - If we're ever friends, keep in mind I have a lack of emotional empathy. I genuinely cannot help that
 
-- My Engie <3 , General Cheeseburger <3
+- General Cheeseburger <3 , Scout <3 , Engie <3
