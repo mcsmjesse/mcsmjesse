@@ -1,12 +1,10 @@
-## MEET THE MEDIC !
-ihave the funniest github trust
-also im. looking for friends. im lonely as hell. maybe thats bc of my npd /j. idk. im wnot thst bad tho. please add me on discord if interested (medicsdonthealscouts)  .  im 5teen . please be educated on personality disorders and DID. be educated on fictionkin / otherkin / therian stuff . DONT.BE.DRY. 
+## HIIIIIIIE !
 
-waiting for yall to notice im just adding yalls githubs LMFAOOOOOO....if youre in the tf2 area? i've probably seen your github. boomheadshotmate? (the really cool sniper yes) yeah i've seen you. AxonMalware? i've seen you. mickmundyy? ofcccc....lov3wires? yeah. maggotingg? ofc. scoutirl and 07pancakes? OF COUUURSE. baatterup? ya. :// Paper-Shredder? already seen before. 
+im. looking for friends. im lonely as hell. maybe thats bc of my npd /j. idk. im wnot thst bad tho. please add me on discord if interested (medicsdonthealscouts)  .  im 5teen . please be educated on personality disorders and DID. be educated on fictionkin / otherkin / therian stuff . DONT.BE.DRY. 
 
-- Call me Medic !
+- Call me Jesse / Aiden / Medic !
 
-- Spiritial,Physical,AND Psychological Medic fictionkin. Though please dont see me as someone that just fictionkins Medic, I AM Medic
+- Spiritial,Physical,AND Psychological Jesse & Medic fictionkin. Though please dont see me as someone that just fictionkins Jesse/Medic, I AM Jesse/Medic
 - ^ fictionkin definition in my own words as someone whos been researching it for 4 years:
 - Fictionkins are individuals that INVOLUNTARILY identify *as* a fictional character/species from ANY media. This identity can be spiritual (past life stuff/other spiritual things), physical, or psychological (neurodivergence related, trauma related, brain wiring stuff) . Fictionkin ARE the character they identify as and it is not as simple as a "connection" .
 
@@ -15,8 +13,8 @@ waiting for yall to notice im just adding yalls githubs LMFAOOOOOO....if youre i
    ^ All are either diagnosed or medically recognized.
    Also, friendly reminder Narcissistic Personality Disorder is (as it suggests in the name) a PERSONALITY disorder. It affects me daily. Its GOING to affect my life and behavior with other people. Also, Im not a monster nor am I evil for having a disorder.
 
- - Interests: TF2, MCSM, DW, Forsaken, Inanimate Insanity
+ - Interests: MCSM, TF2,  DW, Forsaken, Inanimate Insanity
 
  - If we're ever friends, keep in mind I have a lack of emotional empathy. I genuinely cannot help that
 
-- General Cheeseburger <3 , Scout <3 , Engie <3
+- Lukas <3 , Scout <3
