@@ -4,9 +4,10 @@ im. looking for friends. im lonely as hell. maybe thats bc of my npd /j. idk. im
 
 - Call me Jesse / Dream / Romeo !
 
-- Spiritial,Physical,AND Psychological Jesse & Dream fictionkin. Though please dont see me as someone that just fictionkins Jesse/Dream, I AM Jesse/Dream
-- ^ fictionkin definition in my own words as someone whos been researching it for 4 years:
-- Fictionkins are individuals that INVOLUNTARILY identify *as* a fictional character/species from ANY media. This identity can be spiritual (past life stuff/other spiritual things), physical, or psychological (neurodivergence related, trauma related, brain wiring stuff) . Fictionkin ARE the character they identify as and it is not as simple as a "connection" .
+- I am a Fullfic. My fictypes are Jesse, C!Dream, Romeo, and many more.
+- Fullfic is not fictionkinning. Fullfic is when you identify as a character in every way, and that the label fictionkin isnt enough or can feel like your identity is being watered down. Fullfics are typically very uncomfortable with "doubles" . I am not just a fictionkin of these characters, they are who I am. They are not seperate from me ❤️
+
+- oh im also a factkin and support them because they deserve to be a part of this community and supported by other alterhumans. "anti factkin" dni, thank you
 
  - AUDHD, NPD, DID
 
