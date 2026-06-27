@@ -19,5 +19,3 @@ im. looking for friends. im lonely as hell. maybe thats bc of my npd /j. idk. im
  - Interests: MCSM, DSMP, TF2,  DW, Forsaken, Inanimate Insanity
 
  - If we're ever friends, keep in mind I have a lack of emotional empathy. I genuinely cannot help that
-
-- Lukas <3
