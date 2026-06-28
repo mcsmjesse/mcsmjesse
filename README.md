@@ -16,6 +16,8 @@ im. looking for friends. im lonely as hell. maybe thats bc of my npd /j. idk. im
    ^ All are either diagnosed or medically recognized.
    Also, friendly reminder Narcissistic Personality Disorder is (as it suggests in the name) a PERSONALITY disorder. It affects me daily. Its GOING to affect my life and behavior with other people. Also, Im not a monster nor am I evil for having a disorder.
 
- - Interests: MCSM, DSMP, TF2,  DW, Forsaken, Inanimate Insanity
+ - Interests: QSMP2, MCSM, DSMP, TF2,  DW, Forsaken, Inanimate Insanity
 
  - If we're ever friends, keep in mind I have a lack of emotional empathy. I genuinely cannot help that
+
+   - Lukas <3
